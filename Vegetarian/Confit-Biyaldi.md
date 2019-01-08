@@ -31,4 +31,5 @@
 4. Once vegetables are completely softened but still hold their shape, remove from the oven.  Place a ring mold in the center of a large plate, and fill widthwise with vegetables stacked vertically.  Place a layer of vegetables staggered horizontally over top, and slowly remove ring mold.  Combine 1 tablespoon of the red pepper sauce from the bottom of the roaster with remaining olive oil, and drizzle in a circle around the outside of the vegetable stack.  Garnish with torn parsley and serve.
 
 6. ENJOY!
+
 ![](https://i.imgur.com/t21FfGh.jpg)
