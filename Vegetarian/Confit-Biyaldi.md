@@ -15,10 +15,11 @@
 * 3 Tbsp olive oil, divided
 * 2 medium green squash
 * 2 medium yellow squash
-* 2 medium Japanese eggplants
-* 1 tsp kosher salt
+* 2 medium Japanese eggplants (or any other kind of eggplant)
+* 2 tsp kosher salt
 * 1 tsp freshly ground pepper
-* 5 leaves fresh parsley, torn (fresh parsley is gross!)
+* 5 leaves fresh parsley, torn ("fresh parsley is gross!" - Contributed by jnewma)
+* 1/4 cup shredded carrots
 
 ## Method
 
@@ -28,7 +29,7 @@
 
 3. Preheat oven to 225°F.  Using a very sharp knife, cut tomatoes into 1/8-inch thick slices, and place on a parchment-lined baking sheet.  Using a mandolin, slice squash and eggplants into 1/8-inch thick slices, and stack on the baking sheet.  In a shallow roaster or casserole, pour a thin layer of the roast pepper mixture, and spread evenly.  Begin shingling vegetables on top: eggplant, followed by tomato, yellow squash, and green squash - continuing the pattern around the edge of the roaster, letting each slice stick out less than 1/4-inch from underneath the following slice.  Once the outside of the roaster has been lined with vegetables, repeat another layer inside, and continue until roaster is filled with patterned vegetables.  Finely chop remaining rosemary, and sprinkle over top with 1 tablespoon olive oil, salt, and pepper.  Cut a piece of parchment paper to the size of the roaster, place on top of vegetables.  Roast for 90 minutes, removing the parchment paper during the final 20 minutes of cooking.
 
-4. Once vegetables are completely softened but still hold their shape, remove from the oven.  Place a ring mold in the center of a large plate, and fill widthwise with vegetables stacked vertically.  Place a layer of vegetables staggered horizontally over top, and slowly remove ring mold.  Combine 1 tablespoon of the red pepper sauce from the bottom of the roaster with remaining olive oil, and drizzle in a circle around the outside of the vegetable stack.  Garnish with torn parsley and serve.
+4. Once vegetables are completely softened but still hold their shape, remove from the oven.  Place a ring mold in the center of a large plate, and fill widthwise with vegetables stacked vertically.  Place a layer of vegetables staggered horizontally over top, and slowly remove ring mold.  Combine 1 tablespoon of the red pepper sauce from the bottom of the roaster with remaining olive oil, and drizzle in a circle around the outside of the vegetable stack.  Garnish with torn parsley and shredded carrots and serve.
 
 6. ENJOY!
 
