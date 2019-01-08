@@ -18,7 +18,7 @@
 * 2 medium Japanese eggplants (or any other kind of eggplant)
 * 2 tsp kosher salt
 * 1 tsp freshly ground pepper
-* 5 leaves fresh parsley, torn
+* 5 leaves fresh parsley, torn ("fresh parsley is gross!" - Contributed by jnewma)
 * 1/4 cup shredded carrots
 
 ## Method
